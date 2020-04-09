@@ -31,5 +31,5 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 
 <hr>
 
-[&#128279; permalink](https://dcpetty.github.io/school-closure/humor.md) and [&#128297; repository](https://github.com/dcpetty/school-closure/humor.md) for this page.
+[&#128279; permalink](https://psb-david-petty.github.io/school-closure/humor.html) and [&#128297; repository](https://github.com/psb-david-petty/school-closure/blob/master/humor.md) for this page.
 
