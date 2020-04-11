@@ -8,6 +8,7 @@ Sometimes, you just have to laugh.
 | -- | -- |
 | [https://instagram.com/p/B9rc_hkpmXs/](https://instagram.com/p/B9rc_hkpmXs/) | Sisyphus works from home |
 | [https://twitter.com/michaelreuter/status/1243641396394954755/](https://twitter.com/michaelreuter/status/1243641396394954755) |  A proliferation of exponentiation |
+| [http://t.ly/jZJOP](http://t.ly/jZJOP) | Zoom meeting: audio only v. with video |
 | [https://9gag.com/gag/aZ75r1V](https://9gag.com/gag/aZ75r1V) | van Gogh |
 
 Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
@@ -27,6 +28,7 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [http://youtu.be/_Ydhxpy26QQ](http://youtu.be/_Ydhxpy26QQ) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 6 (science) |
 | [http://youtu.be/67GmbL53ZyY](http://youtu.be/67GmbL53ZyY) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 7 (art) |
 | [http://youtu.be/frcgisSQXAo](http://youtu.be/frcgisSQXAo) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 8 (story time) |
+| [http://youtu.be/5G-k8s2dZlk](http://youtu.be/5G-k8s2dZlk) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 9 (Passover) |
 
 
 <hr>
