@@ -10,7 +10,7 @@ Sometimes, you just have to laugh.
 | [https://twitter.com/michaelreuter/status/1243641396394954755/](https://twitter.com/michaelreuter/status/1243641396394954755) |  A proliferation of exponentiation |
 | [http://t.ly/jZJOP](http://t.ly/jZJOP) | Zoom meeting: audio only v. with video |
 | [https://9gag.com/gag/aZ75r1V](https://9gag.com/gag/aZ75r1V) | van Gogh |
-| [https://media.giphy.com/media/ule4vhcY1xEKQ/giphy.gif](https://media.giphy.com/media/ule4vhcY1xEKQ/giphy.gif) | At the computer |
+| [https://giphy.com/gifs/reactionseditor-cat-typing-ule4vhcY1xEKQ](https://giphy.com/gifs/reactionseditor-cat-typing-ule4vhcY1xEKQ) | At the computer |
 
 Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 
