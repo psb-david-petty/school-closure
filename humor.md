@@ -30,7 +30,7 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [http://youtu.be/67GmbL53ZyY](http://youtu.be/67GmbL53ZyY) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 7 (art) |
 | [http://youtu.be/frcgisSQXAo](http://youtu.be/frcgisSQXAo) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 8 (story time) |
 | [http://youtu.be/5G-k8s2dZlk](http://youtu.be/5G-k8s2dZlk) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 9 (Passover) |
-| [http://youtu.be/DD4En40KD0E](http://youtu.be/DD4En40KD0E) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 19 (health) |
+| [http://youtu.be/DD4En40KD0E](http://youtu.be/DD4En40KD0E) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 10 (health) |
 
 <hr>
 
