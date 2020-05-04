@@ -32,6 +32,7 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [http://youtu.be/5G-k8s2dZlk](http://youtu.be/5G-k8s2dZlk) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 9 (Passover) |
 | [http://youtu.be/DD4En40KD0E](http://youtu.be/DD4En40KD0E) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 10 (health) |
 | [http://youtu.be/aWl7kQZHZE0](http://youtu.be/aWl7kQZHZE0) | [The Juice Media](https://youtube.com/user/thejuicemedia) | &hellip;and a reason I have been listening to [RATM](https://www.youtube.com/watch?v=4FCRuE_gGkE&list=PLFglrP4IEffHfAHw0WITGCnhAa9MVYI24) lately |
+| [http://youtu.be/na-CylyaJb0](http://youtu.be/na-CylyaJb0) | [Topi the Corgi](https://youtube.com/channel/UC62zoJ8N9JdSnFDbcKjOUDA) | &hellip;works from home |
 
 <hr>
 
