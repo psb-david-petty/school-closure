@@ -33,6 +33,7 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [http://youtu.be/DD4En40KD0E](http://youtu.be/DD4En40KD0E) | [Paula Poundstone](https://paulapoundstone.com/) | Ms. Nancy 10 (health) |
 | [http://youtu.be/aWl7kQZHZE0](http://youtu.be/aWl7kQZHZE0) | [The Juice Media](https://youtube.com/user/thejuicemedia) | &hellip;and a reason I have been listening to [RATM](https://www.youtube.com/watch?v=4FCRuE_gGkE&list=PLFglrP4IEffHfAHw0WITGCnhAa9MVYI24) lately |
 | [http://youtu.be/na-CylyaJb0](http://youtu.be/na-CylyaJb0) | [Topi the Corgi](https://youtube.com/channel/UC62zoJ8N9JdSnFDbcKjOUDA) | &hellip;works from home |
+| [http://youtu.be/ipkn1OdmQd8](http://youtu.be/ipkn1OdmQd8) | [The Daily Show](https://www.youtube.com/channel/UCwWhs_6x42TyRM4Wstoq8HA) | *Zoomstitute* (sign up for yours today on [Frontline / Aesop](https://login.frontlineeducation.com/login?signin=1c69e72a8cd857573dca5856d643a324&productId=ABSMGMT&clientId=ABSMGMT)!) |
 
 <hr>
 
