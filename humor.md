@@ -35,6 +35,30 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [http://youtu.be/na-CylyaJb0](http://youtu.be/na-CylyaJb0) | [Topi the Corgi](https://youtube.com/channel/UC62zoJ8N9JdSnFDbcKjOUDA) | &hellip;works from home |
 | [http://youtu.be/ipkn1OdmQd8](http://youtu.be/ipkn1OdmQd8) | [The Daily Show](https://www.youtube.com/channel/UCwWhs_6x42TyRM4Wstoq8HA) | *Zoomstitute* (sign up for yours today on [Frontline / Aesop](https://login.frontlineeducation.com/login?signin=1c69e72a8cd857573dca5856d643a324&productId=ABSMGMT&clientId=ABSMGMT)!) |
 
+## [Sarah Cooper](https://twitter.com/sarahcpr)
+
+| [Twitter link](https://twitter.com/sarahcpr) | How to&hellip; |
+| -- | -- |
+| [https://twitter.com/sarahcpr/status/1250425102136561665](https://twitter.com/sarahcpr/status/1250425102136561665) | How to leadership |
+| [https://twitter.com/sarahcpr/status/1250555127171350530](https://twitter.com/sarahcpr/status/1250555127171350530) | My update in the status meeting |
+| [https://twitter.com/sarahcpr/status/1250227878882693126](https://twitter.com/sarahcpr/status/1250227878882693126) | These are a few of my favorite companies |
+| [https://twitter.com/sarahcpr/status/1253474772702429189](https://twitter.com/sarahcpr/status/1253474772702429189) | How to medical |
+| [https://twitter.com/sarahcpr/status/1255663308537028610](https://twitter.com/sarahcpr/status/1255663308537028610) | How to mayor of Las Vegas |
+| [https://twitter.com/sarahcpr/status/1256337915405389826](https://twitter.com/sarahcpr/status/1256337915405389826) | How to strong death totals |
+| [https://twitter.com/sarahcpr/status/1258455086663114752](https://twitter.com/sarahcpr/status/1258455086663114752) | How to grief |
+| [https://twitter.com/sarahcpr/status/1260028573693272068](https://twitter.com/sarahcpr/status/1260028573693272068) | How to #ObamaGate |
+| [https://twitter.com/sarahcpr/status/1259223035971805185](https://twitter.com/sarahcpr/status/1259223035971805185) | How to testing |
+| [https://twitter.com/sarahcpr/status/1261085326887604224](https://twitter.com/sarahcpr/status/1261085326887604224) | How to more cases than anybody in the world  |
+| [https://twitter.com/sarahcpr/status/1262583362079936512](https://twitter.com/sarahcpr/status/1262583362079936512) | How to hydroxychloroquine |
+| [https://twitter.com/sarahcpr/status/1263602255476985862](https://twitter.com/sarahcpr/status/1263602255476985862) | I tested very positively |
+| [https://twitter.com/sarahcpr/status/1266797274149146624](https://twitter.com/sarahcpr/status/1266797274149146624) | Should I take insulin |
+| [https://twitter.com/sarahcpr/status/1263515163367333889](https://twitter.com/sarahcpr/status/1263515163367333889) | Many per capitas |
+| [https://twitter.com/sarahcpr/status/1263515132698734597](https://twitter.com/sarahcpr/status/1263515132698734597) | Manorities |
+| [https://twitter.com/sarahcpr/status/1266797274149146624](https://twitter.com/sarahcpr/status/1266797274149146624) | How to the black paople |
+| [https://twitter.com/sarahcpr/status/1268164036790759424](https://twitter.com/sarahcpr/status/1268164036790759424) | How to bible |
+| [https://twitter.com/sarahcpr/status/1269411521987256320](https://twitter.com/sarahcpr/status/1269411521987256320) | How to bunker |
+| [https://twitter.com/sarahcpr/status/1270157187957116930](https://twitter.com/sarahcpr/status/1270157187957116930) | How to lobster |
+
 <hr>
 
 [&#128279; permalink](https://psb-david-petty.github.io/school-closure/humor.html) and [&#128297; repository](https://github.com/psb-david-petty/school-closure/blob/master/humor.md) for this page.
