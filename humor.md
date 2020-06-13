@@ -51,7 +51,7 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [https://twitter.com/sarahcpr/status/1261085326887604224](https://twitter.com/sarahcpr/status/1261085326887604224) | How to more cases than anybody in the world  |
 | [https://twitter.com/sarahcpr/status/1262583362079936512](https://twitter.com/sarahcpr/status/1262583362079936512) | How to hydroxychloroquine |
 | [https://twitter.com/sarahcpr/status/1263602255476985862](https://twitter.com/sarahcpr/status/1263602255476985862) | I tested very positively |
-| [https://twitter.com/sarahcpr/status/1266797274149146624](https://twitter.com/sarahcpr/status/1266797274149146624) | Should I take insulin |
+| [https://twitter.com/sarahcpr/status/1265449852370108416](https://twitter.com/sarahcpr/status/1265449852370108416) | Should I take insulin |
 | [https://twitter.com/sarahcpr/status/1263515163367333889](https://twitter.com/sarahcpr/status/1263515163367333889) | Many per capitas |
 | [https://twitter.com/sarahcpr/status/1263515132698734597](https://twitter.com/sarahcpr/status/1263515132698734597) | Manorities |
 | [https://twitter.com/sarahcpr/status/1266797274149146624](https://twitter.com/sarahcpr/status/1266797274149146624) | How to the black paople |
