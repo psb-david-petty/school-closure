@@ -47,6 +47,7 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [https://twitter.com/sarahcpr/status/1256337915405389826](https://twitter.com/sarahcpr/status/1256337915405389826) | How to strong death totals |
 | [https://twitter.com/sarahcpr/status/1258455086663114752](https://twitter.com/sarahcpr/status/1258455086663114752) | How to grief |
 | [https://twitter.com/sarahcpr/status/1260028573693272068](https://twitter.com/sarahcpr/status/1260028573693272068) | How to #ObamaGate |
+| [http://youtu.be/zdlwokkS4DA](http://youtu.be/zdlwokkS4DA) | How to #ObamaGate 3 (w/ the My Pilla guy) |
 | [https://twitter.com/sarahcpr/status/1259223035971805185](https://twitter.com/sarahcpr/status/1259223035971805185) | How to testing |
 | [https://twitter.com/sarahcpr/status/1261085326887604224](https://twitter.com/sarahcpr/status/1261085326887604224) | How to more cases than anybody in the world  |
 | [https://twitter.com/sarahcpr/status/1262583362079936512](https://twitter.com/sarahcpr/status/1262583362079936512) | How to hydroxychloroquine |
@@ -58,7 +59,9 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [https://twitter.com/sarahcpr/status/1268164036790759424](https://twitter.com/sarahcpr/status/1268164036790759424) | How to bible |
 | [https://twitter.com/sarahcpr/status/1269411521987256320](https://twitter.com/sarahcpr/status/1269411521987256320) | How to bunker |
 | [https://twitter.com/sarahcpr/status/1270157187957116930](https://twitter.com/sarahcpr/status/1270157187957116930) | How to lobster |
-| [http://youtu.be/7gjQSTtU6Yk?start=35](http://youtu.be/7gjQSTtU6Yk?start=35) | How to elements of bathrooms |
+| [http://youtu.be/7gjQSTtU6Yk?start=35](http://youtu.be/7gjQSTtU6Yk?start=35) | How to bathroom (on the Tonight Show) |
+| [https://twitter.com/sarahcpr/status/1271756080817868800](https://twitter.com/sarahcpr/status/1271756080817868800) | How to real estate |
+| [https://twitter.com/sarahcpr/status/1272229127563685889](https://twitter.com/sarahcpr/status/1272229127563685889) | How to Lincoln |
 
 <hr>
 
