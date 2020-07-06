@@ -62,6 +62,13 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [http://youtu.be/7gjQSTtU6Yk?start=35](http://youtu.be/7gjQSTtU6Yk?start=35) | How to bathroom (on the Tonight Show) |
 | [https://twitter.com/sarahcpr/status/1271756080817868800](https://twitter.com/sarahcpr/status/1271756080817868800) | How to real estate |
 | [https://twitter.com/sarahcpr/status/1272229127563685889](https://twitter.com/sarahcpr/status/1272229127563685889) | How to Lincoln |
+| [https://twitter.com/sarahcpr/status/1274495672239169536](https://twitter.com/sarahcpr/status/1274495672239169536) | How to happy fathers day |
+| [https://twitter.com/sarahcpr/status/1275160183598186496](https://twitter.com/sarahcpr/status/1275160183598186496) | How to empty seat |
+| [https://twitter.com/sarahcpr/status/1276623987624366080](https://twitter.com/sarahcpr/status/1276623987624366080) | How to second term |
+| [http:/youtu.be/SUTYsl9TTvA](https://youtube.com/watch?v=SUTYsl9TTvA&list=PL-8pDWAJLeYjt_QWcEZ_t7eYdax-YkkS5) | YouTube playlist / compilation |
+| [Sarah Cooper Doesn't Mimic Trump. She Exposes Him](https://www.nytimes.com/2020/06/25/magazine/sarah-cooper-doesnt-mimic-trump-she-exposes-him.html) | NYTimes |
+| [10-tricks-to-appear-smart-during-meetings-fb184dab35a4](https://medium.com/@TheCooperReview/10-tricks-to-appear-smart-during-meetings-fb184dab35a4) | Guilty as charged on these&hellip; |
+| [how-to-get-engineers-to-sort-of-respect-you-85bb89c12d70](https://medium.com/@TheCooperReview/how-to-get-engineers-to-sort-of-respect-you-85bb89c12d70) | Um&hellip; |
 
 <hr>
 
