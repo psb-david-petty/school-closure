@@ -68,7 +68,7 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [https://twitter.com/sarahcpr/status/1280189253637607424](https://twitter.com/sarahcpr/status/1280189253637607424) | How to mask |
 | [https://twitter.com/sarahcpr/status/1281631729409822722](https://twitter.com/sarahcpr/status/1281631729409822722) | How to cognitive |
 | [https://twitter.com/sarahcpr/status/1283499165935378433](https://twitter.com/sarahcpr/status/1283499165935378433) | How to immigration policy |
-| [https://twitter.com/sarahcpr/status/1286675192585093126](https://twitter.com/sarahcpr/status/1286675192585093126) | How to person woman man camera tv ([try it!](https://psb-david-petty.github.io/pwmct/)) |
+| [https://twitter.com/sarahcpr/status/1286675192585093126](https://twitter.com/sarahcpr/status/1286675192585093126) | How to person woman man camera tv |
 | [http:/youtu.be/SUTYsl9TTvA](https://youtube.com/watch?v=SUTYsl9TTvA&list=PL-8pDWAJLeYjt_QWcEZ_t7eYdax-YkkS5) | YouTube playlist / compilation |
 
 ## [Sarah Cooper](https://youtube.com/channel/UCySwUJIFN_tECtGX3xbjAGQ)
@@ -79,6 +79,17 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [10-tricks-to-appear-smart-during-meetings-fb184dab35a4](https://medium.com/@TheCooperReview/10-tricks-to-appear-smart-during-meetings-fb184dab35a4) | Guilty as charged on these&hellip; |
 | [how-to-get-engineers-to-sort-of-respect-you-85bb89c12d70](https://medium.com/@TheCooperReview/how-to-get-engineers-to-sort-of-respect-you-85bb89c12d70) | Um&hellip; |
 | [https://youtube.com/playlist?list=PL-8pDWAJLeYiuHHvHzayaCXsbtl9RhyA8](https://youtube.com/playlist?list=PL-8pDWAJLeYiuHHvHzayaCXsbtl9RhyA8) | *The Bubble* playlist |
+
+## [PWMCT](https://en.wikipedia.org/wiki/Person,_woman,_man,_camera,_TV)
+
+| Link | Description |
+| -- | -- |
+| [https://youtu.be/j8oaaP68i4s](https://www.youtube.com/watch?v=j8oaaP68i4s&list=PL-8pDWAJLeYjt_QWcEZ_t7eYdax-YkkS5) | PWMCT Sarah Cooper |
+| [https://youtu.be/VAm-ZAPfDFQ](https://youtu.be/VAm-ZAPfDFQ) | PWMCT Seth Meyers |
+| [https://youtu.be/ejKvwawO0uA](https://youtu.be/ejKvwawO0uA) | PWMCT Steven Colbert |
+| [https://youtu.be/Sr-Fe_K40tc](https://youtu.be/Sr-Fe_K40tc) | PWMCT Trevor Noah |
+| [https://youtu.be/R4u6HagT6_I](https://youtu.be/R4u6HagT6_I) | PWMCT Jimmy Fallon |
+| [https://psb-david-petty.github.io/pwmct/](https://psb-david-petty.github.io/pwmct/) | PWMCT &lsquo;acuity&rsquo; test ([try it!](https://psb-david-petty.github.io/pwmct/)) |
 
 <hr>
 
