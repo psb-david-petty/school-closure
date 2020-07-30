@@ -65,6 +65,10 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [https://twitter.com/sarahcpr/status/1274495672239169536](https://twitter.com/sarahcpr/status/1274495672239169536) | How to happy fathers day |
 | [https://twitter.com/sarahcpr/status/1275160183598186496](https://twitter.com/sarahcpr/status/1275160183598186496) | How to empty seat |
 | [https://twitter.com/sarahcpr/status/1276623987624366080](https://twitter.com/sarahcpr/status/1276623987624366080) | How to second term |
+| [https://twitter.com/sarahcpr/status/1280189253637607424](https://twitter.com/sarahcpr/status/1280189253637607424) | How to mask |
+| [https://twitter.com/sarahcpr/status/1281631729409822722](https://twitter.com/sarahcpr/status/1281631729409822722) | How to cognitive |
+| [https://twitter.com/sarahcpr/status/1283499165935378433](https://twitter.com/sarahcpr/status/1283499165935378433) | How to immigration policy |
+| [https://twitter.com/sarahcpr/status/1286675192585093126](https://twitter.com/sarahcpr/status/1286675192585093126) | How to person woman man camera tv ([try it!](https://psb-david-petty.github.io/pwmct/)) |
 | [http:/youtu.be/SUTYsl9TTvA](https://youtube.com/watch?v=SUTYsl9TTvA&list=PL-8pDWAJLeYjt_QWcEZ_t7eYdax-YkkS5) | YouTube playlist / compilation |
 
 ## [Sarah Cooper](https://youtube.com/channel/UCySwUJIFN_tECtGX3xbjAGQ)
