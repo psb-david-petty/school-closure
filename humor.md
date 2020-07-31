@@ -71,7 +71,7 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [https://twitter.com/sarahcpr/status/1286675192585093126](https://twitter.com/sarahcpr/status/1286675192585093126) | How to person woman man camera tv |
 | [http:/youtu.be/SUTYsl9TTvA](https://youtube.com/watch?v=SUTYsl9TTvA&list=PL-8pDWAJLeYjt_QWcEZ_t7eYdax-YkkS5) | YouTube playlist / compilation |
 
-## [Sarah Cooper](https://youtube.com/channel/UCySwUJIFN_tECtGX3xbjAGQ)
+## [Sarah Cooper &mdash; YouTube](https://youtube.com/channel/UCySwUJIFN_tECtGX3xbjAGQ)
 
 | Link | Description |
 | -- | -- |
@@ -80,7 +80,7 @@ Special thanks to [Peter Wolf](https://www.facebook.com/peter.wolf.75839923).
 | [how-to-get-engineers-to-sort-of-respect-you-85bb89c12d70](https://medium.com/@TheCooperReview/how-to-get-engineers-to-sort-of-respect-you-85bb89c12d70) | Um&hellip; |
 | [https://youtube.com/playlist?list=PL-8pDWAJLeYiuHHvHzayaCXsbtl9RhyA8](https://youtube.com/playlist?list=PL-8pDWAJLeYiuHHvHzayaCXsbtl9RhyA8) | *The Bubble* playlist |
 
-## [PWMCT](https://en.wikipedia.org/wiki/Person,_woman,_man,_camera,_TV){#pwmct}
+## [PWMCT](https://en.wikipedia.org/wiki/Person,_woman,_man,_camera,_TV)
 
 | Link | Description |
 | -- | -- |
